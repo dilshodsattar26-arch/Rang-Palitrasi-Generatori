@@ -1,0 +1,1 @@
+# Rang-Palitrasi-Generatori
